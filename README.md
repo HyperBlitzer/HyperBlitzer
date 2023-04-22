@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @HyperBlitzer
+- 👋 Hi, I’m @HyperBlitzer (Jose Arreguin)
 - 👀 I’m interested in Coding and Gaming
 - 💞️ I’m looking to collaborate on random projects
 - 📫 How to reach me josearreguin1676@gmail.com
